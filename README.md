@@ -8,7 +8,7 @@ please visit my rentry for more info _!_
 
 * you can take inspo from my skins but for the love of god don't copy. 
 * I'm usually sitting w / my friends _!!_ don't assume we're dating and don't 'ship' us that's weird.
-* I'm fine w / people interacting , including c+h. It's a pixel pony game I don't care. just don't be weird please.
+* I'm fine w / people interacting , including touch. It's a pixel pony game I don't care. just don't be weird please.
 * I also struggle with interaction but I will do my best.
 * be mindful that when I'm w / friends I usually won't want to interact. 
 * I'm usually offtab so w2i. ^_^
