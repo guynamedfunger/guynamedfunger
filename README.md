@@ -4,7 +4,7 @@ ___welcome !!___ (*´▽`)/
 
 please visit my rentry for more info _!_
 
- some general info . . . 
+general info . . . 
 
 * you can take inspo from my skins but for the love of god don't copy. 
 * I'm usually sitting w / my friends _!!_ don't assume we're dating and don't 'ship' us that's weird.
